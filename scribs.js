@@ -1,0 +1,1 @@
+supa base project psswd: ME-MrWwviAu7Q0DvB1Rzaj6JO6AlyRlI
